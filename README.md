@@ -2,7 +2,7 @@
 
 The vendors that are on this list are here because they are well known to the community for both their service and the great products that they carry. Some can be seen regularly helping with questions that are posted.  None of the links have embedded affiliate codes.
 
-##US
+## US
 
 [420EDC](https://420edc.com)
 
@@ -19,7 +19,7 @@ The vendors that are on this list are here because they are well known to the co
 [vGoodiez](https://vgoodiez.com)
 
 
-##Canada
+## Canada
 
 [Great White North](https://vapenorth.ca)
 
@@ -30,18 +30,18 @@ The vendors that are on this list are here because they are well known to the co
 [Vaporific](https://vaporific.ca/)
 
 
-##UK
+## UK
 
 [Vapefiend](https://vapefiend.co.uk)
 
 [VapeWellness](https://vapewellness.co.uk)
 
-##EU
+## EU
 
 [Vaposhop](https://vaposhop.com)
 
 
-#Recommended Manufacturers/Makers
+# Manufacturers/Makers
 
 [Cannabis Hardware](https://cannabishardware.com)
 
@@ -61,6 +61,6 @@ The vendors that are on this list are here because they are well known to the co
 
 [Underdog Vapes](https://www.underdogvapes.com)
 
-#Vendors to Avoid
+# Scams
 
 [Tvape - to understand why, read this post](https://web.archive.org/web/20211026195521/https://www.reddit.com/r/vaporents/comments/qgenyx/the_truth_about_utillian_zeus_and_tvape/)
