@@ -61,6 +61,6 @@ The vendors that are on this list are here because they are well known to the co
 
 [Underdog Vapes](https://www.underdogvapes.com)
 
-# Scams
+# Marketing Scams
 
 [Tvape - to understand why, read this post](https://web.archive.org/web/20211026195521/https://www.reddit.com/r/vaporents/comments/qgenyx/the_truth_about_utillian_zeus_and_tvape/)
