@@ -63,4 +63,4 @@ The vendors that are on this list are here because they are well known to the co
 
 # Marketing Scams
 
-[Tvape - to understand why, revew this](https://github.com/Vaporents/LicensedRetailers/blob/main/Deleted_TVape_Reddit_Post.md)
+[Tvape - to understand why, revew this](https://github.com/Vaporents/TVape-Zeus-Utillian-Marketing-Manipulation)
