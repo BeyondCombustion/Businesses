@@ -63,4 +63,4 @@ The vendors that are on this list are here because they are well known to the co
 
 # Marketing Scams
 
-[Tvape - to understand why, read this post](https://web.archive.org/web/20211026195521/https://www.reddit.com/r/vaporents/comments/qgenyx/the_truth_about_utillian_zeus_and_tvape/)
+[Tvape - to understand why, revew this](https://github.com/Vaporents/LicensedRetailers/blob/main/Deleted_TVape_Reddit_Post.md)
