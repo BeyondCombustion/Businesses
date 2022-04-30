@@ -1,5 +1,7 @@
 # Why to avoid TVape - Deleted Reddit Post
 
+From an now unknown user on [/r/Vaporents](https://reddit.com/r/vaporents), who shortly after deleted their post, originally made ob October 26, 2021.
+
 ## Original Reddit post text copied below + links to Wayback Machine
 
 #### [Original Post Link](https://www.reddit.com/r/vaporents/comments/qgenyx/the_truth_about_utillian_zeus_and_tvape/)
