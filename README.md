@@ -5,7 +5,7 @@
 
 The vendors that are on this list are here because they are well known to the community for both their service and the great products that they carry. Some can be seen regularly helping with questions that are posted.  None of the links have embedded affiliate codes.
 
-## US
+## United States
 
 [420EDC](https://420edc.com)
 
