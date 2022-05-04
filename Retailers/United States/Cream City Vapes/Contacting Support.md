@@ -12,7 +12,7 @@
 ## SUBMITTING A SUPPORT TICKET VIA EMAIL:
 support@creamcityvapes.com
 
-##GUIDELINES: 
+## GUIDELINES: 
 If you are contacting us about a current or past order, include only the order number in the subject line of the email - use the body of the email to explain the purpose for your ticket or inquiry.
 
 If you are contacting us for any reason not involving a current or past order, state the purpose for your ticket in the subject line of your email in five words or less.
