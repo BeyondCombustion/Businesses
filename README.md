@@ -17,8 +17,6 @@ The vendors that are on this list are here because they are well known to the co
 
 [Puffitup](https://puffitup.com)
 
-[The Simrell Collection](https://simrellcollection.com/)
-
 [Sneaky Pete Store](https://sneakypetestore.com)
 
 [vGoodiez](https://vgoodiez.com)
@@ -61,6 +59,8 @@ The vendors that are on this list are here because they are well known to the co
 [Lamart](https://lamart.ch)
 
 [The Rogue Wax Works](https://theroguewaxworks.com)
+
+[The Simrell Collection](https://simrellcollection.com/)
 
 [Toasty-Top](https://toasty-top.com)
 
