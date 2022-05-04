@@ -8,3 +8,5 @@
 ## Get Support
 
 [Click here for BeyondCombustion's latest contact info for Cream City Vapes](https://github.com/BeyondCombustion/Business/blob/main/Retailers/United%20States/Cream%20City%20Vapes/Contacting%20Support.md)
+
+[Click here to go directly to Cream City Vapes contact us page](https://www.creamcityvapes.com/pages/contact-us)
