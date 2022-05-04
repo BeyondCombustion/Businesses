@@ -30,7 +30,7 @@ We will do our best to respond to your initial ticket within 2 business days.
 
 #### *Always consider submitting a support ticket via email prior to texting us. Tickets submitted via email provide us with more useful information in order to help you!
 
-##GUIDELINES: 
+## GUIDELINES: 
 If you are contacting us about a current or past order, include the order number along with the purpose for your ticket or inquiry in one (1) text message. Provide as much information as possible.
 
 ### YOU WILL NOT RECEIVE A RESPONSE IMMEDIATELY, PLEASE DO NOT SEND MULTIPLE TEXT MESSAGES. 
