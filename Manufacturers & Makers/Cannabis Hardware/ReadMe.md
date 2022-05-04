@@ -23,7 +23,7 @@ support@cannabishardware.com
 ## Phone
 
 ### Call or Text 
-(561) 529-9001 
+[(561) 529-9001](tel://15615299001)
 #### Monday through Friday 9a.m. to 5p.m. (EST)
 
 ## Address
