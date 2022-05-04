@@ -48,6 +48,8 @@ The vendors that are on this list are here because they are well known to the co
 
 [Cannabis Hardware](https://github.com/BeyondCombustion/Business/blob/main/Manufacturers%20%26%20Makers/Cannabis%20Hardware/)
 
+[Cloud Connoisseur](https://github.com/BeyondCombustion/Business/tree/main/Manufacturers%20%26%20Makers/Cloud%20Connoisseur)
+
 [Ed's TnT](https://www.edstnt.com)
 
 [Firewood Vapes](https://firewoodvapes.com)
