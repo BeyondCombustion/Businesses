@@ -6,7 +6,7 @@
 
 ## [Instagram](https://www.instagram.com/cloud_connoisseur_official/)
 
-## [Contact Page](https://cloud-connoisseur.com/pages/contact)
+# [Contact Page](https://cloud-connoisseur.com/pages/contact)
 
 ### Email
 
