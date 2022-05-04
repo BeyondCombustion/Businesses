@@ -4,6 +4,16 @@
 
 https://www.cannabishardware.com/
 
+# Social Media
+ 
+ [Cannabis Hardware Discord](https://discord.gg/ny96pxTfDA)
+ 
+ [Facebook](https://www.facebook.com/NewVape.USA/)
+ 
+ [Instagram](https://www.instagram.com/cannabis.hardware/)
+ 
+ [YouTube](https://www.youtube.com/c/Newvape710)
+
 # Support
 
 ## Email
