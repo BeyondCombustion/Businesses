@@ -4,7 +4,7 @@
 
 # Social Media
 
-## [Instagram](https://www.instagram.com/cloud_connoisseur_official/)
+## [cloud_connoisseur_official Instagram](https://www.instagram.com/cloud_connoisseur_official/)
 
 # [Contact Page](https://cloud-connoisseur.com/pages/contact)
 
