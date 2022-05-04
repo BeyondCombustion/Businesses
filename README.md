@@ -9,7 +9,7 @@ The vendors that are on this list are here because they are well known to the co
 
 [420EDC](https://420edc.com)
 
-[Cream City Vapes](https://creamcityvapes.com)
+[Cream City Vapes](https://github.com/BeyondCombustion/Business/tree/main/Retailers/United%20States/Cream%20City%20Vapes)
 
 [Delta3D Studios](https://delta3dstudios.com)
 
