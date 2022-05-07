@@ -51,7 +51,6 @@ Links to currently active promotions are below:
 #### 1-(678)-224-1434
 
 # Shipping Options at Checkout for Most US Orders
-## Note: Processing times additional
 - USPS First Class Package
 - UPS® Ground
 - USPS Priority Mail
