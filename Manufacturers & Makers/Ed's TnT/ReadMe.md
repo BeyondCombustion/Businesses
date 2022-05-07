@@ -6,3 +6,8 @@
 [Facebook](https://www.facebook.com/Eds-TnTwwwedstntcom-267685303268614/)
 
 [Instagram](https://www.instagram.com/eds_tnt_/)
+# Contact
+## Email
+ed@edstnt.com
+## Phone
+1-(877)-564-5058
