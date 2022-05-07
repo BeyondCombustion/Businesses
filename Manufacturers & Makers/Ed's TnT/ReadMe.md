@@ -19,7 +19,7 @@ I do what I love and love what I do! I am very fortunate to have made it this fa
 
 [Instagram](https://www.instagram.com/eds_tnt_/)
 
-# [Contact Ed's TnT](https://edstnt.com/pages/contact-us)
+# [Contact Ed](https://edstnt.com/pages/contact-us)
 
 ## Email
 ed@edstnt.com
