@@ -53,7 +53,7 @@ Links to currently active promotions are below:
 # Shipping Options at Checkout for Most US Orders
 Please allow time for order processing.
 - [USPS First Class Package](https://www.usps.com/ship/first-class-mail.htm)
-- UPS® Ground
+- [UPS® Ground](https://www.ups.com/maps?loc=en_US)
 - [USPS Priority Mail](https://www.usps.com/ship/priority-mail.htm)
 - [UPS Next Day Air Saver®](https://www.ups.com/assets/resources/media/en_US/UPS_Next_Day_Air.pdf)
 - [USPS Priority Mail Express](https://www.usps.com/ship/priority-mail-express.htm)
