@@ -9,7 +9,7 @@
 
 # Who is VGoodiEZ?
 
-VGoodiEZ is a small family owned business specializing in high quality vaporizers and accessories from the finest artist and manufacturers worldwide.
+First launched on April 8th 2018, https://VGoodiEZ.com is a small family owned business specializing in high quality vaporizers and accessories from the finest artist and manufacturers worldwide.
 
 VGoodiEZ aims to deliver the best value and customer experience including expert support for all items they offer both before and after your purchase.
 
