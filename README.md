@@ -19,7 +19,7 @@ The vendors that are on this list are here because they are well known to the co
 
 [Sneaky Pete Store](https://sneakypetestore.com)
 
-[VGoodiEZ](https://vgoodiez.com)
+[VGoodiEZ](https://vgoodiez.com) (Ships Internationally)
 
 
 ## Canada
