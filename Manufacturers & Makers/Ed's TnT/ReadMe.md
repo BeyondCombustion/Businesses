@@ -1,7 +1,7 @@
 # [Ed's TnT](https://edstnt.com/)
 ![image](https://user-images.githubusercontent.com/104687767/167275205-91d96b63-d8a2-44c7-9ae0-4f0fe4716674.png)
 
-# Homepage
+# Ed's TnT Homepage
 ## https://edstnt.com/
 
 # [Ed's Story](https://edstnt.com/pages/about-us-1)
