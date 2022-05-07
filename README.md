@@ -53,7 +53,7 @@ https://verdampftnochmal.de/
 
 [Cloud Connoisseur](https://github.com/BeyondCombustion/Business/tree/main/Manufacturers%20%26%20Makers/Cloud%20Connoisseur)
 
-[Ed's TnT](https://www.edstnt.com)
+[Ed's TnT](https://github.com/BeyondCombustion/Business/tree/main/Manufacturers%20%26%20Makers/Ed's%20TnT)
 
 [Firewood Vapes](https://firewoodvapes.com)
 
