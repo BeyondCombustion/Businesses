@@ -15,26 +15,26 @@
 
 # VGoodiEZ On Social Media
 
-[/r/VGoodiEZ - VGoodiEZ subreddit](https://www.reddit.com/r/VGoodiez/)
+- [/r/VGoodiEZ - VGoodiEZ subreddit](https://www.reddit.com/r/VGoodiez/)
 
-[Discord Community](https://discord.gg/UETxShF9sr) (Adults 21+)
+- [Discord Community](https://discord.gg/UETxShF9sr) (Adults 21+)
 
-[Facebook](https://www.facebook.com/vgoodiez.shop)
+- [Facebook](https://www.facebook.com/vgoodiez.shop)
 
-[Instagram](https://instagram.com/_vgoodiez_)
+- [Instagram](https://instagram.com/_vgoodiez_)
 
-[Snapchat](https://snapchat.com/add/vgoodiez.com)
+- [Snapchat](https://snapchat.com/add/vgoodiez.com)
 
-[Twitter Feed](https://twitter.com/VgoodiezC)
+- [Twitter Feed](https://twitter.com/VgoodiezC)
 
-[YouTube Channel](http://www.youtube.com/channel/UCQkwKOZZ_P8mb6LOInVYZ1A)
+- [YouTube Channel](http://www.youtube.com/channel/UCQkwKOZZ_P8mb6LOInVYZ1A)
 
 # Support
 
 ## Email
 
-sales@vgoodiez.com
+### sales@vgoodiez.com
 
 ## Phone
-#### Call or text
-1-(678)-224-1434
+## Call or text
+### 1-(678)-224-1434
