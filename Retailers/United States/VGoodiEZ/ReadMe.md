@@ -9,9 +9,19 @@ https://vgoodiez.com/
 
 # Social Media
 
+[/r/VGoodiEZ - VGoodiEZ subreddit](https://www.reddit.com/r/VGoodiez/)
+
 [VGoodiEZ Discord](https://discord.gg/UETxShF9sr) (Adults 21+)
 
-[/r/VGoodiEZ - VGoodiEZ subreddit](https://www.reddit.com/r/VGoodiez/)
+[VGoodiEZ Facebook](https://www.facebook.com/vgoodiez.shop)
+
+[VGoodiEZ Instagram](https://instagram.com/_vgoodiez_)
+
+[VGoodiEZ Snapchat](https://snapchat.com/add/vgoodiez.com)
+
+[VGoodiEZ Twitter](https://twitter.com/VgoodiezC)
+
+[VGoodiEZ YouTube](http://www.youtube.com/channel/UCQkwKOZZ_P8mb6LOInVYZ1A)
 
 # Support
 
