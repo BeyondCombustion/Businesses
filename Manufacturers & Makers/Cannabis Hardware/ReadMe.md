@@ -4,9 +4,9 @@
 
 https://www.cannabishardware.com/
 
-# Social Media
+# Social Media (Adults 21+)
  
- [Cannabis Hardware Discord](https://discord.gg/ny96pxTfDA)
+ [Discord](https://discord.gg/ny96pxTfDA)
  
  [Facebook](https://www.facebook.com/NewVape.USA/)
  
