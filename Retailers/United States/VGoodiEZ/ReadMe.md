@@ -50,11 +50,11 @@ Links to currently active promotions are below:
 ### Call or text
 #### 1-(678)-224-1434
 
-# Shipping Options at Checkout for US Customers
+# Shipping Options at Checkout for Most US Orders
 - USPS First Class Package
 - UPS® Ground
 - USPS Priority Mail
 - UPS Next Day Air Saver®
 - USPS Priority Mail Express
 - UPS Next Day Air®
-	UPS Next Day Air® Early
+- UPS Next Day Air® Early
