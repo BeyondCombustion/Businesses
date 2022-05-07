@@ -59,3 +59,11 @@ Please allow time for order processing.
 - USPS Priority Mail Express
 - UPS Next Day Air®
 - UPS Next Day Air® Early
+
+# Accepted Methods of Payment
+- Sezzle
+- Visa
+- Mastercard
+- Discover
+- AmericanExpress
+- Many other major credit networks
