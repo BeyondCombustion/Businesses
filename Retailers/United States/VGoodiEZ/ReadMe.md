@@ -7,7 +7,7 @@
 
 ## https://vgoodiez.com/
 
-#### [VGoodiez will price match U.S. Shipper's delivered cost. Email sales@vgoodiez.com with details.](https://vgoodiez.com/pages/discounts)  
+#### [VGoodiez will price match U.S. Shipper's delivered cost.](https://vgoodiez.com/pages/discounts) Email sales@vgoodiez.com with details prior to purchase.  
 
 ## VGoodiEZ offers worldwide shipping options.   
 
