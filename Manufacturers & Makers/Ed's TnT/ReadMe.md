@@ -1,7 +1,7 @@
 # [Ed's TnT](https://edstnt.com/)
 ![image](https://user-images.githubusercontent.com/104687767/167275205-91d96b63-d8a2-44c7-9ae0-4f0fe4716674.png)
 
-# Ed's Story
+# [Ed's Story](https://edstnt.com/pages/about-us-1)
 
 I guess I started all this years ago when I got the wood bug from my old man way back in the day! He hand made these really nice wooden pipes with brass bowls for himself and friends, I thought even as a kid, I can do that! I got a little older and one day I did. I made a couple for myself and friends and felt really good about it! A few years went by and I got a shop, a saw, and a drill press. Made a couple more to see if I still had it. By that time I had a nice PC and even had software to build a website. I watched a few videos, read several tutorials and before I knew it Ed’s TnT was global!
 
@@ -18,8 +18,11 @@ I do what I love and love what I do! I am very fortunate to have made it this fa
 [Facebook](https://www.facebook.com/Eds-TnTwwwedstntcom-267685303268614/)
 
 [Instagram](https://www.instagram.com/eds_tnt_/)
-# Contact
+
+# [Contact Ed's TnT](https://edstnt.com/pages/contact-us)
+
 ## Email
 ed@edstnt.com
+
 ## Phone
 1-(877)-564-5058
