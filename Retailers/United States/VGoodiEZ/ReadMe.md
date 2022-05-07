@@ -29,7 +29,7 @@
 
 - [YouTube Channel](http://www.youtube.com/channel/UCQkwKOZZ_P8mb6LOInVYZ1A)
 
-# Support
+# VGoodiEZ Support
 
 ## Email
 
