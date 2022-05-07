@@ -7,6 +7,12 @@
 
 https://vgoodiez.com/
 
+#### [VGoodiez will price match U.S. Shipper's delivered cost.](https://vgoodiez.com/pages/discounts)  
+
+Email sales@vgoodiez.com with details. We offer worldwide shipping options!   
+
+Shipping is FREE within the United States with orders over $75!  
+
 # VGoodiEZ On Social Media
 
 [/r/VGoodiEZ - VGoodiEZ subreddit](https://www.reddit.com/r/VGoodiez/)
