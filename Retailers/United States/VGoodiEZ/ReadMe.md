@@ -21,4 +21,4 @@ sales@vgoodiez.com
 
 ## Phone
 #### Call or text
-[1-678-224-1434](tel:+16782241434)
+1-(678)-224-1434
