@@ -5,4 +5,4 @@
 # Social Media
 [Facebook](https://www.facebook.com/Eds-TnTwwwedstntcom-267685303268614/)
 
-[Instagram]https://www.instagram.com/eds_tnt_/)
+[Instagram](https://www.instagram.com/eds_tnt_/)
