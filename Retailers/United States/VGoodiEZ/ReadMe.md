@@ -16,9 +16,14 @@ VGoodiEZ aims to deliver the best value and customer experience including expert
 Please email sales@vgoodiez.com or call/text 1-(678)-224-1434 with any questions.  VGoodiEZ will be happy to discuss your needs!
 
 ## VGoodiEZ offers worldwide shipping options.   
-
 ### [Shipping is FREE within the United States with orders over $75.](https://vgoodiez.com/pages/discounts) 
 ### [VGoodiez will price match U.S. Shipper's delivered cost.](https://vgoodiez.com/pages/discounts) Email sales@vgoodiez.com with details prior to purchase.  
+# Discounts and Promotions
+VGoodiEZ runs a number of prommotions throughout the year. The best way to stay on top of the latest updates is to follow VGoodiEZ on social media.
+
+Links to currently active promotions are below:
+#### [VGoodiEZ Current Discounts and Promotions](https://vgoodiez.com/pages/discounts) 
+
 # VGoodiEZ On Social Media
 
 - [/r/VGoodiEZ - VGoodiEZ subreddit](https://www.reddit.com/r/VGoodiez/)
