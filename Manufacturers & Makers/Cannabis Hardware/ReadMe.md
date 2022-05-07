@@ -12,7 +12,7 @@ https://www.cannabishardware.com/
  
  [Instagram](https://www.instagram.com/cannabis.hardware/)
  
- [YouTube](https://www.youtube.com/c/Newvape710)
+ [Youtube](https://www.youtube.com/c/Newvape710)
 
 # Support
 
