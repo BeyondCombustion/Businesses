@@ -7,6 +7,14 @@
 
 ## https://vgoodiez.com/
 
+# Who is VGoodiEZ?
+
+VGoodiEZ is a small family owned business specializing in high quality vaporizers and accessories from the finest artist and manufacturers worldwide.
+
+VGoodiEZ aims to deliver the best value and customer experience including expert support for all items they offer both before and after your purchase.
+
+Please email sales@vgoodiez.com or call/text 1-(678)-224-1434 with any questions.  VGoodiEZ will be happy to discuss your needs!
+
 #### [VGoodiez will price match U.S. Shipper's delivered cost.](https://vgoodiez.com/pages/discounts) Email sales@vgoodiez.com with details prior to purchase.  
 
 ## VGoodiEZ offers worldwide shipping options.   
