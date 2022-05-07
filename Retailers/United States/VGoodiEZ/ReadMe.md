@@ -7,24 +7,24 @@
 
 ## https://vgoodiez.com/
 
-# Who is VGoodiEZ?
+# Who is [VGoodiEZ](https://VGoodiEZ.com)?
 
-First launched on April 8th 2018, https://VGoodiEZ.com is a small family owned business specializing in high quality vaporizers and accessories from the finest artist and manufacturers worldwide.
+First launched on April 8th 2018, [VGoodiEZ](https://VGoodiEZ.com) is a small family owned business specializing in high quality vaporizers and accessories from the finest artist and manufacturers worldwide.
 
-VGoodiEZ aims to deliver the best value and customer experience including expert support for all items they offer both before and after your purchase.
+[VGoodiEZ](https://VGoodiEZ.com) aims to deliver the best value and customer experience including expert support for all items they offer both before and after your purchase.
 
-Please email sales@vgoodiez.com or call/text 1-(678)-224-1434 with any questions.  VGoodiEZ will be happy to discuss your needs!
+Please email sales@vgoodiez.com or call/text 1-(678)-224-1434 with any questions.  [VGoodiEZ](https://VGoodiEZ.com) will be happy to discuss your needs!
 
-## VGoodiEZ offers worldwide shipping options.   
+## [VGoodiEZ](https://VGoodiEZ.com) offers worldwide shipping options.   
 ### [Shipping is FREE within the United States with orders over $75.](https://vgoodiez.com/pages/discounts) 
 ### [VGoodiez will price match U.S. Shipper's delivered cost.](https://vgoodiez.com/pages/discounts) Email sales@vgoodiez.com with details prior to purchase.  
 # Discounts and Promotions
-VGoodiEZ runs a number of prommotions throughout the year. The best way to stay on top of the latest updates is to follow VGoodiEZ on social media.
+[VGoodiEZ](https://VGoodiEZ.com) runs a number of prommotions throughout the year. The best way to stay on top of the latest updates is to follow [VGoodiEZ](https://VGoodiEZ.com) on social media.
 
 Links to currently active promotions are below:
 #### [VGoodiEZ Current Discounts and Promotions](https://vgoodiez.com/pages/discounts) 
 
-# VGoodiEZ On Social Media
+# [VGoodiEZ](https://VGoodiEZ.com) On Social Media
 
 - [/r/VGoodiEZ - VGoodiEZ subreddit](https://www.reddit.com/r/VGoodiez/)
 
@@ -40,7 +40,7 @@ Links to currently active promotions are below:
 
 - [YouTube Channel](http://www.youtube.com/channel/UCQkwKOZZ_P8mb6LOInVYZ1A)
 
-# VGoodiEZ Support
+# [VGoodiEZ](https://VGoodiEZ.com) Support
 
 ## Email
 
