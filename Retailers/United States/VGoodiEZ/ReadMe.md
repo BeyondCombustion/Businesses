@@ -24,11 +24,11 @@ Feel free to email sales@vgoodiez.com, or call/text 1-(678)-224-1434 with any qu
 Links to currently active promotions are below:
 #### [VGoodiEZ Current Discounts and Promotions](https://vgoodiez.com/pages/discounts) 
 
-# [VGoodiEZ](https://VGoodiEZ.com) On Social Media
+# [VGoodiEZ](https://VGoodiEZ.com) On Social Media (Adults 21+)
 
 - [/r/VGoodiEZ - VGoodiEZ subreddit](https://www.reddit.com/r/VGoodiez/)
 
-- [Discord Community](https://discord.gg/UETxShF9sr) (Adults 21+)
+- [Discord Community](https://discord.gg/UETxShF9sr)
 
 - [Facebook](https://www.facebook.com/vgoodiez.shop)
 
