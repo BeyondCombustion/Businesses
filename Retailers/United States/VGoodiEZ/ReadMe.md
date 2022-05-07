@@ -33,8 +33,8 @@
 
 ## Email
 
-### sales@vgoodiez.com
+#### sales@vgoodiez.com
 
 ## Phone
-## Call or text
-### 1-(678)-224-1434
+### Call or text
+#### 1-(678)-224-1434
