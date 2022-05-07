@@ -13,7 +13,7 @@ First launched on April 8th 2018, [VGoodiEZ](https://VGoodiEZ.com) is a small fa
 
 [VGoodiEZ](https://VGoodiEZ.com) aims to deliver the best value and customer experience including expert support for all items they offer both before and after your purchase.
 
-Feel free to email sales@vgoodiez.com or call/text 1-(678)-224-1434 with any questions.  [VGoodiEZ](https://VGoodiEZ.com) will always be happy to discuss your needs!
+Feel free to email sales@vgoodiez.com, or call/text 1-(678)-224-1434 with any questions.  [VGoodiEZ](https://VGoodiEZ.com) will always be happy to discuss your needs!
 
 ## [VGoodiEZ](https://VGoodiEZ.com) offers worldwide shipping options.   
 ### [Shipping is FREE within the United States with orders over $75.](https://vgoodiez.com/pages/discounts) 
