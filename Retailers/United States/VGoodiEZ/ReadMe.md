@@ -5,13 +5,13 @@
 
 # Homepage
 
-https://vgoodiez.com/
+## https://vgoodiez.com/
 
 #### [VGoodiez will price match U.S. Shipper's delivered cost. Email sales@vgoodiez.com with details.](https://vgoodiez.com/pages/discounts)  
 
-VGoodiEZ offers worldwide shipping options.   
+## VGoodiEZ offers worldwide shipping options.   
 
-Shipping is FREE within the United States with orders over $75. 
+### Shipping is FREE within the United States with orders over $75. 
 
 # VGoodiEZ On Social Media
 
