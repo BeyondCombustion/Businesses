@@ -63,6 +63,8 @@ The vendors that are on this list are here because they are well known to the co
 
 [Lamart](https://lamart.ch)
 
+[MillikenWoodWorks](https://github.com/BeyondCombustion/Business/tree/main/Manufacturers%20%26%20Makers/MillikenWoodWorks)
+
 [The Rogue Wax Works](https://theroguewaxworks.com)
 
 [The Simrell Collection](https://simrellcollection.com/)
