@@ -1,5 +1,4 @@
-
-![420EDC LTD](https://user-images.githubusercontent.com/106893063/172053517-35f245f5-c21f-48d4-852d-c27d019ca043.png)
+![420EDC Small](https://user-images.githubusercontent.com/106893063/172057141-c5c5eb7a-abfd-42fc-aa4c-d714c6a60ee5.png)
 
 **Confluence of Culture and Purpose for Savvy Cannabis Consumers** 
 
@@ -31,7 +30,16 @@ Forced to stop smoking cannabis in 2004, here we are today focused on technology
 
 [420EDC TikTok](https://www.tiktok.com/@420edc)
 
-Drop by the Shop anytime, feel free to reach out with questions or concerns.  We are always happy to help!
+Blog Posts:
+[Arizer Solo2 Airpath Isolation](https://www.420edc.com/blog/arizer-solo2-airpath-isolation/)
+
+[1st Time Use Instructions for Arizer 2nd Generation Portables](https://www.420edc.com/blog/1st-time-use-instructions-for-arizer-2nd-generation-portables/)
+
+[1st Time Use, ProTips and Tweaks for the XMax V3 Pro](https://www.420edc.com/blog/1st-time-use-protips-and-tweaks-for-the-xmax-v3-pro/)
+
+Have an idea for a Blog Post that you'd like to see from us?  Let us know!
+
+Please drop by the Shop anytime, feel free to reach out with questions or concerns.  We are always happy to help!
 
 http://www.420EDC.com
 
