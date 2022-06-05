@@ -15,6 +15,7 @@ Arizer [Air MAX](https://www.420edc.com/arizer/air-max/), [Solo2](https://www.42
 [XLux Roffu](https://www.420edc.com/search.php?search_query=Roffu&section=product)
 
 Other brands we carry are:
+
 [Pucc Grinders](https://www.420edc.com/grinders/pucc-grinder/) 
 
 [JYARZ](https://www.420edc.com/storage-solutions/jyarz/) 
@@ -23,9 +24,11 @@ Other brands we carry are:
 
 [Hohm Tech 🔋](https://www.420edc.com/hohm-tech/)
 
-[DoobTubes](https://www.420edc.com/storage-solutions/doob-tubes/) [Integra Boost](https://www.420edc.com/integra/)
+[DoobTubes](https://www.420edc.com/storage-solutions/doob-tubes/) 
 
-Forced to stop smoking cannabis in 2004, here we are today focused on technology that was just a dream back then.  See what we are doing day to day, week to week on these Social Media channels:
+[Integra Boost](https://www.420edc.com/integra/)
+
+Forced to stop smoking cannabis in 2004, here we are today focused on technology that was just a dream way back when.  See what we are doing day to day, week to week on these Social Media channels:
 
 [420EDC InstaGram](https://www.instagram.com/420EDC/)
 
