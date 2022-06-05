@@ -32,6 +32,7 @@ Forced to stop smoking cannabis in 2004, here we are today focused on technology
 [420EDC TikTok](https://www.tiktok.com/@420edc)
 
 Drop by the Shop anytime, feel free to reach out with questions or concerns.  We are always happy to help!
+
 http://www.420EDC.com
 
 🚭🌲🌳🌴
