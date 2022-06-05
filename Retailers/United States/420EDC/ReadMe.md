@@ -46,7 +46,8 @@ Forced to stop smoking cannabis in 2004, here we are today focused on technology
 
 [420EDC TikTok](https://www.tiktok.com/@420edc)
 
-Blog Posts:
+Helpful Blog Posts:
+
 [Arizer Solo2 Airpath Isolation](https://www.420edc.com/blog/arizer-solo2-airpath-isolation/)
 
 [1st Time Use Instructions for Arizer 2nd Generation Portables](https://www.420edc.com/blog/1st-time-use-instructions-for-arizer-2nd-generation-portables/)
