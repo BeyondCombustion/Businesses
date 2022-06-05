@@ -2,9 +2,7 @@
 
 **Confluence of Culture and Purpose for Savvy Cannabis Consumers** 
 
-Our Focus is _Battery Powered_ Portable Herbal Vaporizers, [Stainless Steel Grinders](https://www.420edc.com/grinders/), [LockBoxes](https://www.420edc.com/storage-solutions/lockbox/), [StashCases](https://www.420edc.com/storage-solutions/stashcase/) and our [TiWarez](https://www.420edc.com/tiwarez/) lineup of titanium products.  
-
-Current Herbal Vaporizer Line-Up:
+Our Focus is _Battery Powered_ Portable Herbal Vaporizers, [Stainless Steel Grinders](https://www.420edc.com/grinders/), [LockBoxes](https://www.420edc.com/storage-solutions/lockbox/), [StashCases](https://www.420edc.com/storage-solutions/stashcase/) and our [TiWarez](https://www.420edc.com/tiwarez/) lineup of titanium products.  Current Herbal Vaporizer Line-Up:
 
 Arizer [Air MAX](https://www.420edc.com/arizer/air-max/), [Solo2](https://www.420edc.com/arizer/solo-2/) & [ArGo](https://www.420edc.com/arizer/argo/)
 
@@ -54,11 +52,7 @@ Helpful Blog Posts:
 
 [1st Time Use, ProTips and Tweaks for the XMax V3 Pro](https://www.420edc.com/blog/1st-time-use-protips-and-tweaks-for-the-xmax-v3-pro/)
 
-Have an idea for a Blog Post that you'd like to see from us?  Let us know!
-
-Please drop by the Shop anytime, feel free to reach out with questions or concerns.  We are always happy to help!
-
-Thanks for all the support since 2016!
+Have an idea for a Blog Post that you'd like to see from us?  Let us know!  Please drop by the Shop anytime, feel free to reach out with questions or concerns.  We are always happy to help!  Thanks for all the support since 2016!  🙏
 
 http://www.420EDC.com
 
