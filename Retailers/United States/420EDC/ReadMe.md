@@ -26,7 +26,7 @@ Our Focus is _Battery Powered_ Portable Herbal Vaporizers, [Stainless Steel Grin
 - [Iaso Goods](https://www.420edc.com/iaso-goods/)
 - [Hohm Tech 🔋](https://www.420edc.com/hohm-tech/)
 - [DoobTubes](https://www.420edc.com/storage-solutions/doob-tubes/)
-- [Integra Boost](https://www.420edc.com/integra/).  
+- [Integra Boost](https://www.420edc.com/integra/)
 
 #### Forced to stop smoking cannabis in 2004, here we are today focused on technology that was just a dream back then. See what we are doing day to day, week to week on Social Media:
 
@@ -40,6 +40,6 @@ Our Focus is _Battery Powered_ Portable Herbal Vaporizers, [Stainless Steel Grin
 - [TikTok](https://www.tiktok.com/@420edc)
 
 Drop by the Shop anytime, feel free to reach out with questions or concerns.  We are always happy to help!
-http://www.420EDC.com
+#### http://www.420EDC.com
 
 🚭🌲🌳🌴
