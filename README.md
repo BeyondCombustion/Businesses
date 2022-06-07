@@ -7,7 +7,7 @@ The vendors that are on this list are here because they are well known to the co
 
 ## United States
 
-[420EDC](https://420edc.com)
+[420EDC](https://github.com/BeyondCombustion/Business/tree/main/Retailers/United%20States/420EDC)
 
 [Cream City Vapes](https://github.com/BeyondCombustion/Business/tree/main/Retailers/United%20States/Cream%20City%20Vapes)
 
