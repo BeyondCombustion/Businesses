@@ -13,7 +13,7 @@ Our Focus is _Battery Powered_ Portable Herbal Vaporizers, [Stainless Steel Grin
 - [Air MAX](https://www.420edc.com/arizer/air-max/)
 - [Solo2](https://www.420edc.com/arizer/solo-2/) 
 - [ArGo](https://www.420edc.com/arizer/argo/)
-- 
+
 #### XMax
 
 - [V3 Pro](https://www.420edc.com/xmax/)
