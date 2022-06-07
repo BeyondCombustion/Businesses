@@ -39,7 +39,7 @@ Our Focus is _Battery Powered_ Portable Herbal Vaporizers, [Stainless Steel Grin
 - [Youtube](https://www.youtube.com/channel/UCOvhSWkxw90zQ9PVh1ztVJw)
 - [TikTok](https://www.tiktok.com/@420edc)
 
-Drop by the Shop anytime, feel free to reach out with questions or concerns.  We are always happy to help!
+### Drop by the Shop anytime, feel free to reach out with questions or concerns.  We are always happy to help!
 #### http://www.420EDC.com
 
 🚭🌲🌳🌴
