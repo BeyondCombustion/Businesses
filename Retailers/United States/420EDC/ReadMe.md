@@ -52,7 +52,9 @@ Helpful Blog Posts:
 
 [1st Time Use, ProTips and Tweaks for the XMax V3 Pro](https://www.420edc.com/blog/1st-time-use-protips-and-tweaks-for-the-xmax-v3-pro/)
 
-Have an idea for a Blog Post that you'd like to see from us?  Let us know!  Please drop by the Shop anytime, feel free to reach out with questions or concerns.  We are always happy to help!  Thanks for all the support since 2016!  🙏
+Have an idea for a Blog Post that you'd like to see from us?  Let us know!  Please drop by the Shop anytime, feel free to reach out with questions or concerns.  We are always happy to help!  
+
+Thanks for all the support since 2016!  🙏
 
 http://www.420EDC.com
 
