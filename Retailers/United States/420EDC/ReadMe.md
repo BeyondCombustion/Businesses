@@ -6,21 +6,21 @@
 
 Our Focus is _Battery Powered_ Portable Herbal Vaporizers, [Stainless Steel Grinders](https://www.420edc.com/grinders/), [LockBoxes](https://www.420edc.com/storage-solutions/lockbox/), [StashCases](https://www.420edc.com/storage-solutions/stashcase/) and our [TiWarez](https://www.420edc.com/tiwarez/) lineup of titanium products.  
 
-### Current Herbal Vaporizer Line-Up:
+## Current Herbal Vaporizer Line-Up:
 
-#### Arizer 
+### Arizer 
 
 - [Air MAX](https://www.420edc.com/arizer/air-max/)
 - [Solo2](https://www.420edc.com/arizer/solo-2/) 
 - [ArGo](https://www.420edc.com/arizer/argo/)
 
-#### XMax
+### XMax
 
 - [V3 Pro](https://www.420edc.com/xmax/)
 - [Fog Pro](https://www.420edc.com/topgreen/xvape-fog-pro/)
 - [Roffu](https://www.420edc.com/search.php?search_query=Roffu&section=product)
 
-### Other brands we carry are 
+## Other brands we carry are 
 - [Pucc Grinders](https://www.420edc.com/grinders/pucc-grinder/)
 - [JYARZ](https://www.420edc.com/storage-solutions/jyarz/)
 - [Iaso Goods](https://www.420edc.com/iaso-goods/)
@@ -28,7 +28,7 @@ Our Focus is _Battery Powered_ Portable Herbal Vaporizers, [Stainless Steel Grin
 - [DoobTubes](https://www.420edc.com/storage-solutions/doob-tubes/)
 - [Integra Boost](https://www.420edc.com/integra/)
 
-#### Forced to stop smoking cannabis in 2004, here we are today focused on technology that was just a dream back then. See what we are doing day to day, week to week on Social Media:
+### Forced to stop smoking cannabis in 2004, here we are today focused on technology that was just a dream back then. See what we are doing day to day, week to week on Social Media:
 
 - [Instagram](https://www.instagram.com/420EDC/)
 - [Facebook](https://www.facebook.com/420edc/)
