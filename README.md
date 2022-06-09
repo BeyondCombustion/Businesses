@@ -49,6 +49,8 @@ The vendors that are on this list are here because they are well known to the co
 
 # Manufacturers/Makers
 
+[Arizer](https://github.com/BeyondCombustion/Business/tree/main/Manufacturers%20%26%20Makers/Arizer)
+
 [Cannabis Hardware](https://github.com/BeyondCombustion/Business/blob/main/Manufacturers%20%26%20Makers/Cannabis%20Hardware/)
 
 [Cloud Connoisseur](https://github.com/BeyondCombustion/Business/tree/main/Manufacturers%20%26%20Makers/Cloud%20Connoisseur)
