@@ -1,6 +1,6 @@
 # 420EDC
 
-![420EDC LTD](https://user-images.githubusercontent.com/106893063/172053517-35f245f5-c21f-48d4-852d-c27d019ca043.png)
+![420EDC Small](https://user-images.githubusercontent.com/106893063/172057141-c5c5eb7a-abfd-42fc-aa4c-d714c6a60ee5.png)
 
 **Confluence of Culture and Purpose for Savvy Cannabis Consumers** 
 
@@ -39,7 +39,20 @@ Our Focus is _Battery Powered_ Portable Herbal Vaporizers, [Stainless Steel Grin
 - [Youtube](https://www.youtube.com/channel/UCOvhSWkxw90zQ9PVh1ztVJw)
 - [TikTok](https://www.tiktok.com/@420edc)
 
-### Drop by the Shop anytime, feel free to reach out with questions or concerns.  We are always happy to help!
+## Helpful Blog Posts:
+
+- [Arizer Solo2 Airpath Isolation](https://www.420edc.com/blog/arizer-solo2-airpath-isolation/)
+
+- [1st Time Use Instructions for Arizer 2nd Generation Portables](https://www.420edc.com/blog/1st-time-use-instructions-for-arizer-2nd-generation-portables/)
+
+- [1st Time Use, ProTips and Tweaks for the XMax V3 Pro](https://www.420edc.com/blog/1st-time-use-protips-and-tweaks-for-the-xmax-v3-pro/)
+
+### Have an idea for a Blog Post that you'd like to see from us?  Let us know!  
+#### Please drop by the Shop anytime, feel free to reach out with questions or concerns.  We are always happy to help!  
+
+Thanks for all the support since 2016!  🙏
+
 #### http://www.420EDC.com
 
 🚭🌲🌳🌴
+☮️
