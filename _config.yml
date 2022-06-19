@@ -17,11 +17,11 @@ date_format: "%Y-%m-%d"
 permalink: pretty
 
 # plugins:
-- jekyll-paginate
-- jekyll-sitemap
-- jekyll-gist
-- jekyll-feed
-- jemoji
-- jekyll-include-cache
-- jekyll-remote-theme
-paginate: 15
+#- jekyll-paginate
+#- jekyll-sitemap
+#- jekyll-gist
+#- jekyll-feed
+#- jemoji
+#- jekyll-include-cache
+#- jekyll-remote-theme
+#paginate: 15
