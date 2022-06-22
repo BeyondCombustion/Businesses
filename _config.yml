@@ -1,5 +1,7 @@
 theme: jekyll-theme-slate
 domain: beyondcombustion.github.io       # if you want to force HTTPS, specify the domain without the http at the start, e.g. example.com
+title: "Businesses"
+description: "The vendors that are on this list are here because they are well known to the community for both their service and the great products that they carry. Some can be seen regularly helping with questions that are posted. None of the links have embedded affiliate codes."
 url: https://beyondcombustion.github.io  # the base hostname and protocol for your site, e.g. http://example.com
 # Your name, as you want it to appear underneath each post and in the footer
 author: ProfessionalHandJob
