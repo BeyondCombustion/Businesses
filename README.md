@@ -2,6 +2,8 @@
 
 [Click here for info on how you can help contribute to BeyondCombustion.net!](https://BeyondCombustion.net/How-To-Contribute/)
 
+---
+
 ## United States
 
 [420EDC](https://github.com/BeyondCombustion/Business/tree/main/Retailers/United%20States/420EDC) (Ships Internationally)
