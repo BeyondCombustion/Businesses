@@ -1,9 +1,4 @@
-# Known Retailers
-
-#### [Click here for info on how you can contribute to BeyondCombustion.net](https://github.com/BeyondCombustion/How-To-Contribute/blob/main/README.md)
-
-
-The vendors that are on this list are here because they are well known to the community for both their service and the great products that they carry. Some can be seen regularly helping with questions that are posted.  None of the links have embedded affiliate codes.
+#### [Click here for info on how you can contribute to BeyondCombustion.net](https://BeyondCombustion.net/How-To-Contribute/)
 
 ## United States
 
@@ -77,7 +72,7 @@ The vendors that are on this list are here because they are well known to the co
 
 # Marketing Scams
 
-[Tvape - to understand why, revew this](https://github.com/BeyondCombustion/TVape-Zeus-Utillian-Marketing-Manipulation)
+[Tvape - to understand why, revew this](https://BeyondCombustion.net/TVape-Zeus-Utillian-Marketing-Manipulation)
 
 ## Navigation
 
