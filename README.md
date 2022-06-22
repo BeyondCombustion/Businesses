@@ -78,3 +78,13 @@ The vendors that are on this list are here because they are well known to the co
 # Marketing Scams
 
 [Tvape - to understand why, revew this](https://github.com/BeyondCombustion/TVape-Zeus-Utillian-Marketing-Manipulation)
+
+## Navigation
+
+### [Return to BeyondCombustion.net](https://www.beyondcombustion.net/The-Book-fka-The-Consensus/)
+
+### [Jump to The 'Book' and The 'List'](https://www.beyondcombustion.net/The-Book-fka-The-Consensus/)
+
+### [Review the Glossary](https://BeyondCombustion.net/Glossery/)
+
+### [Go to The Beginners Guide](https://BeyondCombustion.net/Beginners-Start-Here/)
