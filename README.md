@@ -8,7 +8,7 @@
 
 [420EDC](https://github.com/BeyondCombustion/Business/tree/main/Retailers/United%20States/420EDC) (Ships Internationally)
 
-[Cream City Vapes](https://github.com/BeyondCombustion/Business/tree/main/Retailers/United%20States/Cream%20City%20Vapes)
+Cream City Vapes - (Check Reddit/Google/reviews prior to ordering for recent customer feedback. Direct link removed for now.)
 
 [Delta3D Studios](https://delta3dstudios.com)
 
