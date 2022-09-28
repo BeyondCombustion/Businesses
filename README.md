@@ -34,11 +34,15 @@ Cream City Vapes - (Check Reddit/Google/reviews prior to ordering for recent cus
 
 ## UK
 
+[Zamnesia](https://www.zamnesia.com/uk/67-vaporizers?filter&utm_source=github&utm_medium=referral&utm_campaign=beyond_combustion)
+
 [Vapefiend](https://vapefiend.co.uk)
 
 [VapeWellness](https://vapewellness.co.uk)
 
 ## EU
+
+[Zamnesia](https://www.zamnesia.com/67-vaporizers?filter&utm_source=github&utm_medium=referral&utm_campaign=beyond_combustion)
 
 [Vaposhop](https://vaposhop.com)
 
