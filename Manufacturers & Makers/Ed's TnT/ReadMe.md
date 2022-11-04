@@ -33,7 +33,7 @@ I do what I love and love what I do! I am very fortunate to have made it this fa
 # [Contact Ed](https://edstnt.com/pages/contact-us)
 
 ## Email
-ed@edstnt.com
+[ed@edstnt.com](mailto:ed@edstnt.com)
 
 ## Phone
 1-(877)-564-5058
