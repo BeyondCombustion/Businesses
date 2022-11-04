@@ -4,12 +4,12 @@
 # [Ed's TnT](https://edstnt.com/)
 ## https://edstnt.com/
 
-# [Ed's TNT 6th Annual Make-A-Wish Foundation Fundraiser is going on NOW!](https://www.beyondcombustion.net/Businesses/Manufacturers%20&%20Makers/Ed's%20TnT/6th_Annual_Make-a-Wish_Fundraiser/)
+# [Ed's TNT 6th Annual Make-A-Wish Foundation Fundraiser is going on NOW!](https://edstnt.com/blogs/news/eds-tnt-2022-6th-annual-make-a-wish-fundraiser-raffle)
 
-[![image](https://user-images.githubusercontent.com/104687767/199873435-dfad323e-e9b8-4b49-a972-0bfdac2221f3.png)](https://www.beyondcombustion.net/Businesses/Manufacturers%20&%20Makers/Ed's%20TnT/6th_Annual_Make-a-Wish_Fundraiser/)
+[![image](https://user-images.githubusercontent.com/104687767/199873435-dfad323e-e9b8-4b49-a972-0bfdac2221f3.png)](https://edstnt.com/blogs/news/eds-tnt-2022-6th-annual-make-a-wish-fundraiser-raffle)
 
 
-## [Click here for more info](https://www.beyondcombustion.net/Businesses/Manufacturers%20&%20Makers/Ed's%20TnT/6th_Annual_Make-a-Wish_Fundraiser/)
+## [Click here for more info](https://edstnt.com/blogs/news/eds-tnt-2022-6th-annual-make-a-wish-fundraiser-raffle)
 
 
 # [Ed's Story](https://edstnt.com/pages/about-us-1)
