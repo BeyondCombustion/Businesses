@@ -1,7 +1,7 @@
 ![image](https://user-images.githubusercontent.com/104687767/199868615-2b35f7b4-441b-4658-bae4-6769a5541af2.png)
 
 # [Ed's TnT](https://edstnt.com/) 2022 6th Annual Make A Wish Fundraiser/Raffle
-[Original Post](https://edstnt.com/blogs/news/eds-tnt-2022-6th-annual-make-a-wish-fundraiser-raffle_
+[Original Post](https://edstnt.com/blogs/news/eds-tnt-2022-6th-annual-make-a-wish-fundraiser-raffle)
 
 ###### November 1, 2022
 Last year was a great year for the kids, together we as a community raised over $6,500.00 for them from donations sent by so many. I want to thank everyone so much for being a part of this and in advance to everyone that contributes this year.
