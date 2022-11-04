@@ -44,7 +44,7 @@ Links to currently active promotions are below:
 
 ## Email
 
-#### sales@vgoodiez.com
+#### [sales@vgoodiez.com](mailto:sales@vgoodiez.com)
 
 ## Phone
 ### Call or text
