@@ -4,6 +4,10 @@
 # [Ed's TnT](https://edstnt.com/)
 ## https://edstnt.com/
 
+# [Ed's TNT 6th Annual Make-A-Wish Foundation Fundraiser is going on NOW!](https://www.beyondcombustion.net/Businesses/Manufacturers%20&%20Makers/Ed's%20TnT/6th_Annual_Make-a-Wish_Fundraiser/)
+## [Click here for more info](https://www.beyondcombustion.net/Businesses/Manufacturers%20&%20Makers/Ed's%20TnT/6th_Annual_Make-a-Wish_Fundraiser/)
+
+
 # [Ed's Story](https://edstnt.com/pages/about-us-1)
 
 I guess I started all this years ago when I got the wood bug from my old man way back in the day! He hand made these really nice wooden pipes with brass bowls for himself and friends, I thought even as a kid, I can do that! I got a little older and one day I did. I made a couple for myself and friends and felt really good about it! A few years went by and I got a shop, a saw, and a drill press. Made a couple more to see if I still had it. By that time I had a nice PC and even had software to build a website. I watched a few videos, read several tutorials and before I knew it Ed’s TnT was global!
