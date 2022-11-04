@@ -65,5 +65,5 @@ Donate the first day great, donate again the 2nd week even better, donate one mo
 - A new winner be selected through the same process as above.
 
 ## It's that simple!
-### donate to help the Make-A-Wish foundation give a wish to a deserving child and put a smile on their face, put a precious memory in the mind of a parent that may be the most priceless gift they may ever receive.
+### Donate to help the Make-A-Wish foundation give a wish to a deserving child and put a smile on their face, put a precious memory in the mind of a parent that may be the most priceless gift they may ever receive.
 
