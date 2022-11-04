@@ -15,7 +15,7 @@ This year’s event will take place from the 1st through the 30th of November. I
 ## Where to enter: [The contest will be hosted at edstnt.com at my blog](https://edstnt.com/blogs/news/eds-tnt-2022-6th-annual-make-a-wish-fundraiser-raffle)
 
 #### NOTE: BeyondCombustion.net is NOT hosting this fundraiser. This page is to help bring awareness to this amazing cause! 
-**Please click any link or image to go [directly to Ed's blog post for the latest/most updated info.]https://edstnt.com/blogs/news/eds-tnt-2022-6th-annual-make-a-wish-fundraiser-raffle)**
+**Please click any link or image to go [directly to Ed's blog post for the latest/most updated info.](https://edstnt.com/blogs/news/eds-tnt-2022-6th-annual-make-a-wish-fundraiser-raffle)**
 
 ## How to enter: This is fund raiser is for the Make A Wish foundation. 
 - To enter participants will go to the Make A Wish donations page [or simply follow the link provided here](https://secure2.wish.org/site/SPageServer?pagename=donate_now&chid=100-000&utm_campaign=WSA&utm_source=100site&utm_medium=hero). 
