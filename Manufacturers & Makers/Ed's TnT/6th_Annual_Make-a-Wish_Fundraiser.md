@@ -57,7 +57,13 @@ Donate the first day great, donate again the 2nd week even better, donate one mo
 ## How is the winner selected: Each donation will be assigned a number in an Excel spreadsheet for example, if a member donates $50, they will get 6 numbers (line entries) assigned to them. The winner will be chosen by a random number draw.
 
 ## When/where be winner be announced: Winners will be drawn and announced during a live stream [on my Instagram @eds_tnt](https://www.instagram.com/eds_tnt_)
-##### Dec. 1st, 2022 at a later designated time, most likely 12pm noon central time. Will also be posted there the same day at the blog event area. After announcing the winners, at Instagram and at the blog, 2 weeks will be given to notify me by email ed@edstnt.com You must have donation receipt/screenshot to claim any prize. All prizes will be forfeited if no response is received within 2 weeks. A new winner be selected through the same process as above.
+**Dec. 1st, 2022 at a later designated time, most likely 12pm noon central time.**
+- Will also be posted there the same day at the blog event area. 
+- - After announcing the winners, at Instagram and at the blog, 2 weeks will be given to notify me by email ed@edstnt.com 
+- You must have donation receipt/screenshot to claim any prize. 
+- All prizes will be forfeited if no response is received within 2 weeks. 
+- A new winner be selected through the same process as above.
 
-# It's that simple, donate to help MAW give a wish to a deserving child and put a smile on their face, put a precious memory in the mind of a parent that may be the most priceless gift they may ever receive.
+## It's that simple!
+### donate to help the Make-A-Wish foundation give a wish to a deserving child and put a smile on their face, put a precious memory in the mind of a parent that may be the most priceless gift they may ever receive.
 
