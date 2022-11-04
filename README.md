@@ -6,7 +6,7 @@
 
 ## United States
 
-[420EDC](https://github.com/BeyondCombustion/Business/tree/main/Retailers/United%20States/420EDC) (Ships Internationally)
+[420EDC](https://www.beyondcombustion.net/Businesses/Retailers/United%20States/420EDC) (Ships Internationally)
 
 Cream City Vapes - (Check Reddit/Google/reviews prior to ordering for recent customer feedback. Direct link removed for now.)
 
@@ -18,7 +18,7 @@ Cream City Vapes - (Check Reddit/Google/reviews prior to ordering for recent cus
 
 [Sneaky Pete Store](https://sneakypetestore.com)
 
-[VGoodiEZ](https://github.com/BeyondCombustion/Business/tree/main/Retailers/United%20States/VGoodiEZ) (Ships Internationally)
+[VGoodiEZ](https://www.beyondcombustion.net/Businesses/Retailers/United%20States/VGoodiEZ/) (Ships Internationally)
 
 
 ## Canada
@@ -48,13 +48,13 @@ Cream City Vapes - (Check Reddit/Google/reviews prior to ordering for recent cus
 
 # Manufacturers/Makers
 
-[Arizer](https://github.com/BeyondCombustion/Business/tree/main/Manufacturers%20%26%20Makers/Arizer)
+[Arizer](https://www.beyondcombustion.net/Businesses/Manufacturers%20%26%20Makers/Arizer/)
 
-[Cannabis Hardware](https://github.com/BeyondCombustion/Business/blob/main/Manufacturers%20%26%20Makers/Cannabis%20Hardware/)
+[Cannabis Hardware](https://www.beyondcombustion.net/Businesses/Manufacturers%20%26%20Makers/Cannabis%20Hardware/)
 
-[Cloud Connoisseur](https://github.com/BeyondCombustion/Business/tree/main/Manufacturers%20%26%20Makers/Cloud%20Connoisseur)
+[Cloud Connoisseur](https://www.beyondcombustion.net/Businesses/Manufacturers%20%26%20Makers/Cloud%20Connoisseur/)
 
-[Ed's TnT](https://github.com/BeyondCombustion/Business/tree/main/Manufacturers%20%26%20Makers/Ed's%20TnT)
+[Ed's TnT](https://www.beyondcombustion.net/Businesses/Manufacturers%20%26%20Makers/Ed's%20TnT/)
 
 [Firewood Vapes](https://firewoodvapes.com)
 
@@ -64,7 +64,7 @@ Cream City Vapes - (Check Reddit/Google/reviews prior to ordering for recent cus
 
 [Lamart](https://lamart.ch)
 
-[MillikenWoodWorks](https://github.com/BeyondCombustion/Business/tree/main/Manufacturers%20%26%20Makers/MillikenWoodWorks)
+[MillikenWoodWorks](https://www.beyondcombustion.net/Businesses/Manufacturers%20%26%20Makers/MillikenWoodWorks/)
 
 [The Rogue Wax Works](https://theroguewaxworks.com)
 
@@ -76,7 +76,7 @@ Cream City Vapes - (Check Reddit/Google/reviews prior to ordering for recent cus
 
 # Marketing Scams
 
-[Tvape - to understand why, revew this](https://BeyondCombustion.net/TVape-Zeus-Utillian-Marketing-Manipulation)
+[Tvape - to understand why, revew this](https://BeyondCombustion.net/TVape-Zeus-Utillian-Marketing-Manipulation/)
 
 ## Navigation
 
